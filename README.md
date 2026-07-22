@@ -8,9 +8,9 @@
 
   **Software Engineer Student**
   
-  Building and learning what AI already does.
+  **Building and learning what AI already does.**
   </br>
-  🇨🇴 in 🇬🇧
+  **🇨🇴 in 🇬🇧**
 
   <br>
 
